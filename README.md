@@ -1,0 +1,2 @@
+# diamond-
+DAPATKAN DIAMOND GRATIS
